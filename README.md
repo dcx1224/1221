@@ -23,4 +23,4 @@
 
 我们每天都会更新这些女优的最新番号与影片，确保你第一时间观看到新番内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dcx1224/1221 ）</span>
